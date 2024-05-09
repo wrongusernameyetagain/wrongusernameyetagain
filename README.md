@@ -19,5 +19,5 @@ In my day to day, I:
 
 ## Let's Connect
 
-📫 Feel free to reach out to me at [paul.lipsitz@gmail.com] to discuss data stuff (or gaming!). I'm always open to new opportunities, collaborations, and conversations!
+📫 Feel free to reach out to me at paul.lipsitz@gmail.com to discuss data stuff (or gaming!). I'm always open to new opportunities, collaborations, and conversations!
 
